@@ -1,7 +1,7 @@
 ### Hi there 👋😄
 _My name is Maria Julia but you can call me "Maju"_
 
-👩‍💻I am  a graduating  student of systems information
+👩‍💻I am a student graduating systems information
 
 🧩And here, I pretend to share my projects that I am developing and studing about
 
